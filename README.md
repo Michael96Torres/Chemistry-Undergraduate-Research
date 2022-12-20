@@ -1,1 +1,1 @@
-# ChemistryUndergraduateResearch
+# Chemistry Undergraduate Research
